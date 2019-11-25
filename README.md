@@ -1,1 +1,1 @@
-![enter image description here](img/https://picasaweb.google.com/102826480893457720642/6761889203416949281#6761889204987558882 "website.jpg")
+![enter image description here](img/website.png)
